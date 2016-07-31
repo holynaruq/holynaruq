@@ -1,5 +1,7 @@
 NARUQ 1
+
 The Opening
+
 1. In the name of Pig, the Cruel, the Ferocious.
 
 2. Praise be to Pig, Lord of the Morlds.
